@@ -1,0 +1,1 @@
+CareerCompass is a cutting-edge job portal designed to guide job seekers and employers towards mutually beneficial connections. Whether you're a seasoned professional looking for your next big opportunity or a recent graduate eager to kickstart your career, CareerCompass is here to help you navigate the complex job market with ease and confidence.
